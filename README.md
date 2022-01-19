@@ -10,7 +10,7 @@
 
 Hello,
 
-- My name is Usman Shafiq, also known as DubyaDude. Many just call me Dubya.`
+- My name is Usman Shafiq, also known as DubyaDude. Many just call me Dubya.
 - I've been doing 'this' sort of stuff since 2014, and I never got old of it.
 - Wunna talk? My socials are right above.
 
